@@ -4,8 +4,6 @@ Jonathan  趙那團
 
 ---
 
-![%E1%84%8C%E1%85%A9%E1%84%82%E1%85%A1%E1%84%83%E1%85%A1%E1%86%AB%204d14e37fc5874fd1bc8bdcf6e53a1866/KakaoTalk_20210126_174931652.jpg](%E1%84%8C%E1%85%A9%E1%84%82%E1%85%A1%E1%84%83%E1%85%A1%E1%86%AB%204d14e37fc5874fd1bc8bdcf6e53a1866/KakaoTalk_20210126_174931652.jpg)
-
  🗨 **Email**
 
 guwensoo@gmail.com
